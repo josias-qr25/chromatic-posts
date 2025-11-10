@@ -1,4 +1,4 @@
-# Chromatic Posts - November 11 to November 15
+# Chromatic Posts | November 11 - November 15
 ---
 <sub>November 11, 2025</sub>
 
