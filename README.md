@@ -1,4 +1,4 @@
-# Chromatic Posts
+# Chromatic Posts - November 11 to November 15
 ---
 <sub>November 11, 2025</sub>
 
@@ -12,6 +12,7 @@ The Apprentice seems to be rocking the George Washington look today—perfect fo
 <sub>November 12, 2025</sub>
 
 ![JesterAndFool](Jestersteampromo1.webp)
+![JesterAndFool](Jestersteampromo4.webp)
 
 Double the laughter, double the trouble. These two never stop juggling chaos and charm across Etheria...
 
