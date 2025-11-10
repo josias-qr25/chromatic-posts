@@ -10,7 +10,8 @@ The Apprentice seems to be rocking the George Washington look today—perfect fo
 
 ---
 <sub>November 12, 2025</sub>
-
+<img src="Jestersteampromo1.webp" width="49%" alt="Jester1">
+<img src="Jestersteampromo4.webp" width="49%" alt="Jester2">
 ![JesterAndFool](Jestersteampromo1.webp)
 ![JesterAndFool](Jestersteampromo4.webp)
 
