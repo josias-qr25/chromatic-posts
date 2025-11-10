@@ -16,6 +16,7 @@ The Apprentice seems to be rocking the George Washington look today—perfect fo
 Double the laughter, double the trouble. These two never stop juggling chaos and charm across Etheria...
 
 #DungeonDefenders #JesterandFool #EtheriaAdventures
+
 ---
 <sub>November 13, 2025</sub>
 
@@ -25,3 +26,6 @@ Today is National Kindness Day, and we're not quite if this Huntress showed up t
 
 Either way, kindness always hits harder when followed by a volley of arrows. 😉
 #DungeonDefenders #NationalKindnessDay #AngelHuntress
+
+---
+<sub>November 14, 2025</sub>
