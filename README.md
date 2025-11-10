@@ -30,3 +30,13 @@ Either way, kindness always hits harder when followed by a volley of arrows. ðŸ˜
 
 ---
 <sub>November 14, 2025</sub>
+![Monk](cardboard.png)
+
+---
+<sub>November 15, 2025</sub>
+
+![Penny](annarachy.jpg)
+
+Most normal response to spotting a flying roach.
+
+#DungeonDefenders #AnnarchyCostume #PennyArcade #FlyingRoach
