@@ -21,7 +21,7 @@ Double the laughter, double the trouble. These two never stop juggling chaos and
 
 ![Angel](angel.jpg)
 
-Today is National Kindness Day, and we're not quite if this Huntress showed up to spread kindness or rain arrows... 😇🏹
+Today is National Kindness Day, and we're not quite if this Huntress showed up to spread kindness or Goblin pain... 😇🏹
 
 Either way, kindness always hits harder when followed by a volley of arrows. 😉
 #DungeonDefenders #NationalKindnessDay #AngelHuntress
