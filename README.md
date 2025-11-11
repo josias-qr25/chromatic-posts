@@ -32,6 +32,12 @@ Either way, kindness always hits harder when followed by a volley of arrows. �
 <sub>November 14, 2025</sub>
 ![Monk](cardboard.jpg)
 
+“That cardboard stick doesn’t hurt, hah.”
+The last words of a brave, yet very mistaken hero. 🥋📦😂
+#DungeonDefenders #AnnarchyMonk #CardboardJustice #Bonk
+
+Which Monk style do you think packs the funniest punch?
+
 ---
 <sub>November 15, 2025</sub>
 
