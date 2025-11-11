@@ -23,7 +23,7 @@ Double the laughter, double the trouble. These two never stop juggling chaos and
 
 ![Angel](angel.jpg)
 
-Today is National Kindness Day, and we're not quite if this Huntress showed up to spread kindness or goblin pain... 😇🏹
+Today is National Kindness Day, and we're not quite sure if this Huntress showed up to spread kindness or goblin pain... 😇🏹
 
 Either way, kindness always hits harder when followed by a volley of arrows. 😉
 
@@ -35,7 +35,9 @@ Either way, kindness always hits harder when followed by a volley of arrows. �
 ![Monk](cardboard.jpg)
 
 “That cardboard stick doesn’t hurt, hah.”
+
 The last words of a brave, yet very mistaken hero. 🥋📦😂
+
 #DungeonDefenders #AnnarchyMonk #CardboardJustice #Bonk
 
 Which Monk style do you think packs the funniest punch?
