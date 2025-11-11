@@ -14,7 +14,7 @@ The Apprentice seems to be rocking the George Washington look today—perfect fo
 ![JesterAndFool](Jestersteampromo1.webp)
 ![JesterAndFool](Jestersteampromo4.webp)
 
-Double the laughter, double the trouble. These two never stop juggling chaos and charm across Etheria...
+Double the laughter, double the trouble. These two never stop juggling chaos and charm across Etheria... 🃏😂
 
 #DungeonDefenders #JesterandFool #EtheriaAdventures
 
