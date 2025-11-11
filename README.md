@@ -37,6 +37,6 @@ Either way, kindness always hits harder when followed by a volley of arrows. ðŸ˜
 
 ![Penny](annarchy.jpg)
 
-Most normal response to spotting a flying roach.
+This is the only way to deal with a flying roach.
 
-#DungeonDefenders #AnnarchyCostume #PennyArcade #FlyingRoach
+#DungeonDefenders #Huntress #FlyingRoach #Nope
