@@ -30,6 +30,7 @@ Either way, kindness always hits harder when followed by a volley of arrows. �
 
 ---
 <sub>November 14, 2025</sub>
+
 ![Monk](cardboard.jpg)
 
 “That cardboard stick doesn’t hurt, hah.”
