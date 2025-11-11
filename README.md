@@ -23,7 +23,7 @@ Double the laughter, double the trouble. These two never stop juggling chaos and
 
 ![Angel](angel.jpg)
 
-Today is National Kindness Day, and we're not quite sure if this Huntress showed up to spread kindness or goblin pain... 😇🏹
+Today is National Kindness Day, and we're not quite sure if the Huntress showed up to spread kindness or goblin pain... 😇🏹
 
 Either way, kindness always hits harder when followed by a volley of arrows. 😉
 
